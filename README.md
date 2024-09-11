@@ -6,4 +6,4 @@ Meu nome é maria clara
 - Utilizo esse espaço para minha organização e compartilhamento dos meus projetos desenvolvidos
 
   VOCÊ PODE ENTRAR EM CONTATO COMIGO
-  @mariaclaratizl
+  0000112445794xsp@al.educacao.sp.gov.br
